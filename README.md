@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Mariana and I'm a 25yo web developer.
+My name is Mariana and I'm a 26yo web developer.
 
 - 😄 Pronouns: She / Her
 
